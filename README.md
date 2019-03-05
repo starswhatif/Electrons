@@ -1,6 +1,6 @@
 # Electrons
 Drops of Jupiter in the air.
 
-Is there life on Mar?
+Is there life on Mars?
 
-A spaceman came travelling 
+A spaceman came travelling!!
